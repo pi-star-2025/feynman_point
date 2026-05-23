@@ -1,4 +1,4 @@
-# Feynman Point Hypothesis
+# Feynman Point - End of π
 
 In our number system, 7 represents vision, or the movement of a single light beam.
 
