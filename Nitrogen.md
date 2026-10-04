@@ -1,6 +1,6 @@
 # Nitrogen
 
-Nitrogen is the first element which can go down π past the of the Feynman Point. This allows it to exist physically as Big or Small (as regular mass or mass as refined as quantum light decisions).
+Nitrogen is the first element which can go down π past the Feynman Point. This allows it to exist physically as Big or Small (as regular mass or mass as refined as quantum light decisions).
 
 This choice is the primary basis of genetics, which allows Nitrogen to craft mass (ex: of a cosmic body or person) with Big/Small choices that get stored as a script to keep putting the body together.
 
