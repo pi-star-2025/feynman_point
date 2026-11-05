@@ -22,4 +22,4 @@ If you slow down counting TWICE, with mass, it is represented by iodine, silver,
 
 If you slow down counting THREE TIMES, with mass, it is represented by gold (in a solid state) or life (the very center of a planet or body trying to create gold)
 
-The cuts/angles that are crafted to the "gold" in the very, very center of the quantum earth are the end-state genetics of green/gold. They alway expand the force of gold in some way, considering the force of gold across the multiverse (8D). Voice (earth's idea for gold) uses a map of everyone (8D) to expand the collective mind, by understanding WHY a particular angle would be needed. The multiverse is then always saying/creating whatever you came up with.
+The cuts/angles that are crafted into the "gold" in the very, very center of the quantum earth are the end-state genetics of green/gold. They alway expand the force of gold in some way, considering the force of gold across the multiverse (8D). Voice (earth's idea for gold) uses a map of everyone (8D) to expand the collective mind, by understanding WHY a particular angle would be needed. The multiverse is then always saying/creating whatever you came up with.
