@@ -23,3 +23,25 @@ If you slow down counting TWICE, with mass, it is represented by iodine, silver,
 If you slow down counting THREE TIMES, with mass, it is represented by gold (in a solid state) or life (the very center of a planet or body trying to create gold)
 
 The cuts/angles that are crafted into the "gold" in the very, very center of the quantum earth are the end-state genetics of green/gold. They alway expand the force of gold in some way, considering the force of gold across the multiverse (8D). Voice (earth's idea for gold) uses a map of everyone (8D) to expand the collective mind, by understanding WHY a particular angle would be needed. The multiverse is then always saying/creating whatever you came up with.
+
+## Golden Light 
+
+Golden light projects all colors (even more than you can see in a rainbow).
+
+It is always light that is most directly from the 8D, which is:
+
+Starlight -> 3.1415
+
+Which has slowed down counting (focused on a system) -> 3.14159265
+
+Then wraps around the system, ex: with oxygen or any noise loud enough -> 3.14159265358
+
+Then uses the quantum reflection of another mirror to expand counting, ex: the quantum sky via the ocean -> 3.14159265358979
+
+Then physically is the starlight (sunlight), again, to project ALL colors and ALL digits of π -> 3.1415926535897932
+
+This is both potentially life (in the hole) and gold (outside the black hole).
+
+The sun is 1 electron of gold, the earth’s center is 2, the oxygen is 8, the sky is 18/18, and IF life exists it is the 32.
+
+It’s been possible to see golden life created by the earth (in the sky), and the earth can see golden life created inside of us. 
