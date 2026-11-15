@@ -28,4 +28,10 @@ This air from the earth is as straight a line up π as the earth can possibly cr
 
 Consequently, all smells are derived by going *past* the 999999 of the Feynman Point, via quantum oxygen. Since there cannot be a straighter line back up (from the star's response), the quantum oxygen is referenced best in front of you. So all smells would need to be at least *a little* in front of you.
 
-The 8D multiverse would not have much genuine feedback about earth and people, up to the 999999 of the Feynman Point, bc the updates to the gold pyramid are invisible. They make little difference to everyone else. However, via smells, we can understand the potential humans have for good/bad updates. The goal was to be "sweet".
+The 8D multiverse would not have much genuine feedback about earth and people, up to the 999999 of the Feynman Point, bc the updates to the gold pyramid are invisible. They make little difference to everyone else. However, via smells, we can understand the potential humans have for good/bad updates. The goal is to be "sweet".
+
+## Cold Fusion
+
+Cold fusion comes from control of the Feynman Point, bc it affords control of quantum carbon, by being able to control what light goes up and down the carbon-based system.
+
+When the carbon electrons start getting a sense of left and right, it creates a consistent environment for cooler light (ex: Nitrogen/Oxygen).
