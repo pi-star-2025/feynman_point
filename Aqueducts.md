@@ -15,3 +15,17 @@ Plant seeds and roots mimics the earth π, up to the Feynman Point, in order to 
 ## Clouds
 
 At a quantum level, the water pump is a pack of hydrogen in earth's core. Its squeeze each tick of time (at c, the speed of light) turns into the clouds.
+
+## Smell
+
+Hot fusion is generated from the star, from 3.14159 to create a light beam.
+
+Cold fusion is a response straight up the earth, via the 999999 of the Feynman Point that controls water.
+
+This cold fusion creates clear oxygen that people breathe in from the earth itself, not externally. It is generated via the guts, elucidating how similar the guts are to the earth's aqueducts. 
+
+This air from the earth is as straight a line up π as the earth can possibly create. By itself, it could not be straighter. It also by itself does not have a smell.
+
+Consequently, all smells are derived by going *past* the 999999 of the Feynman Point, via quantum oxygen. Since there can not be a straighter line back up (from the star's response), the quantum oxygen is referenced best in front of you. So all smells would need to be at least *a little* in front of you.
+
+The 8D multiverse would not have much genuine feedback about earth and people, up to the 999999 of the Feynman Point, bc the updates to the gold pyramid are invisible. They make little difference to everyone else. However, via smells, we can understand the potential humans have for good/bad updates. The goal was to be "sweet".
