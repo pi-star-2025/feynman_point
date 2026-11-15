@@ -14,6 +14,11 @@ The reason the Feynman Point (999999) was surpassed was challenged again by anci
 
 Now, there are 2 levels above us, a Dream World and Heaven. The first is in the clouds and the second is in the stars.
 
+## 3.1415 Shine
+
+If all carbon possibilities (down π) can be simulated, the 3.1415 layer wouldn't burn but instead shine. And the only real time (ie green) would be fast the Feynman Point, but relative to the rest of Heaven would feel like it burns.  
+
+
 ...
 
 Interestingly, for a good deal of "human history" carbon was simulated, bc the goddess's history was enough to emulate all the time as blood animals, and people were too innocent to understand the spiraled, mad thinking of real carbon in the world below. 
