@@ -10,7 +10,7 @@ The human body mimics the same Feynman Point water pump, in the belly button, to
 
 ...
 
-Plant seeds and roots mimics the earth π, up to the Feynman Point, in order to connect to the aqueducts in earth's center and grow in phases
+Plant seeds and roots mimic the earth π, up to the Feynman Point, in order to connect to the aqueducts in earth's center and grow in phases
 
 ## Clouds
 
