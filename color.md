@@ -6,3 +6,6 @@ When carbons in a system stabilize due to this 3-body problem (quantum oxygen), 
 
 When the carbon goes far enough down pi (π), it turns into the body of the system instead of color. This is because time is circular, and the carbons that are faster (higher up π) create color while the carbons that are slower (lower down π) turn into the consciousness.
 
+## Nitrogen
+
+It is officially color when it is seen by Nitrogen (7) as a way to decide what to do next
