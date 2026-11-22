@@ -20,3 +20,18 @@ It could even be referenced as quantum oxygen that creates a “shine” directl
  Again, it would be *potential*, referenced only with 3.14159265 and e. And you can *see* it. 
 
 It would also be a way to figure out the 1 thing a “vision” (soul/god) aspires for, in the future. The simple answer on earth is to “fly”.
+
+## Dream Matter 
+
+Consider the equation: mc^2 = e^π. 
+
+You might think you really only increase matter if you go down π, but you could also use more of e (higher quantum speed), by seeing the future in front of you. 
+
+This actually is what creates dream matter that might exist, which relates to your real dreams at night. They are the faster colors and a blue shine in between the third eye.
+
+A common example is that god tells everyone you might fly after death (like a butterfly), which is then not matter that is in reality, but it still affects reality by changing the colors in front of you, using very very fast flickers down e. Then sometimes, the colors will fall into the mind and have impacts on thinking.
+
+
+
+
+
